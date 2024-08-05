@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tharcianasc
+- 👀 I’m interested in reading and learning new things.
+- 🌱 I’m currently learning practices of marketing in the graduation and  logistic management in the work
+- 💞️ I’m looking to collaborate on with my knowledge take in graduation
+- 📫 How to reach me via LinkedIn or email
+- 😄 Pronouns: She/Hers
